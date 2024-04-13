@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arialife
-- 👀 I’m interested in watching and hardwork =money
+- 👀 I’m interested in watching and doing hardwork =money
 - 🌱 I’m currently learning college helath and social care re taking exasm for math nd english
 - 💞️ I’m looking to collaborate on x
 - 📫 How to reach me threw  discord
